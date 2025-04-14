@@ -2,4 +2,4 @@
 
 Seongdeok Kim
 
-Askarova 
+Askarova Zhanylmyrza
